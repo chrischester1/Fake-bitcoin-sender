@@ -10,7 +10,7 @@ Transferable ⭐️ Splittable ⭐️ All Web 3 Wallets Supported ⭐️ Stays L
 
 Website - https://t.me/alliancedeal
 
-Download Free Flash Bitcoin Sender Software In Our Website - https://t.me/alliancedeal 
+Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/alliancedeal 
 
 
 Contact me - To Purchase The Flash Coins Telegram - @chrischester - https://t.me/Chrischester 
