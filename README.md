@@ -8,12 +8,12 @@ Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
 Transferable ⭐️ Splittable ⭐️ All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
 
-Website - https://t.me/alliancedeal
+Website - https://t.me/allianceflashdeal
 
-Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/alliancedeal 
+Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/allianceflashdeal 
 
 
-Contact me - To Purchase The Flash Coins Telegram - @chrischester - https://t.me/Chrischester 
+Contact me - To Purchase The Flash Coins Telegram - @chrisrochester - https://t.me/Chrisrochester 
 
 Want To Know About How Flash Bitcoin Works ? And What Is Flash Bitcoin ?
 
